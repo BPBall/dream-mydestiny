@@ -1,2 +1,2 @@
 # dream-mydestiny
-Make Your Dreams Come True
+Here is where we edit the photos for publishing
